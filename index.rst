@@ -17,7 +17,7 @@ Project Makeover HACK UNLIMITED Gems 2021 Guide WORKING
 How to get free gems/gold in Project Makeover in 2021?
 
 
-Once the site opens, enter your toomics username/email address and continue
+Once the site opens, enter your username/email address and continue
 
 Now, you tap on "Allow" when the system asks permission to download and install the app from other sources.
 
@@ -29,7 +29,7 @@ As soon as you open the application, it will show you that you will earn unlimit
 
 
 
-¶Project Makeover 2021 Generator No Human Verification or Surveys¶
+Â¶Project Makeover 2021 Generator No Human Verification or SurveysÂ¶
 
 Greetings everyone, recorded here is possiblity to enhance your game and access more features with this specific brilliant project makeover cheats subject, appreciate as much gems and coins as you like, work on your individual and be OK. 
 
